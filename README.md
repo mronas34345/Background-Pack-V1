@@ -1,35 +1,35 @@
-# 🌌 Nightdrift Background Pack Vol.1
+# 🌙 𝙉𝙞𝙜𝙝𝙩𝙙𝙧𝙞𝙛𝙩 — 𝘽𝙖𝙘𝙠𝙜𝙧𝙤𝙪𝙣𝙙 𝙋𝙖𝙘𝙠 𝙑𝙤𝙡.2
 
-Welcome to **Nightdrift Background Pack Vol.1** 🌙
-A collection of backgrounds made for creative use and chill vibes.
+Thank you for downloading the Nightdrift Background Pack Vol.2 🖤
 
----
+This pack contains a collection of aesthetic wallpapers made for clean desktop setups and cinematic vibes.
 
-## 📦 Contents
+━━━━━━━━━━━━━━━━━━
 
-* 🌌 High quality backgrounds
-* 🎨 Different styles & designs
-* 🖤 Visuals for multiple uses
+## 📦 Included
 
----
+* High quality wallpapers
+* Multiple aesthetic styles
+* Desktop optimized backgrounds
+* Dark & cinematic visuals
 
-## ✨ Perfect for
+━━━━━━━━━━━━━━━━━━
 
-* wallpapers
-* edits
-* videos
-* creative projects
-* setups & designs
+## ⚠️ Important
 
----
+Please do not reupload or resell the pack.
 
-## ⚠️ Free to Use
+━━━━━━━━━━━━━━━━━━
 
-Feel free to use, upload and share these backgrounds.
-Create, explore and enjoy the vibe.
+## 🌌 Nightdrift Hub
 
----
+More drops, updates and exclusive content:
 
-## 🌙 Stay in the drift
+Discord Community
+Website & VIP Area
+Future Packs & Releases
 
-create, explore, and enjoy the vibe.
+━━━━━━━━━━━━━━━━━━
+
+Stay in the drift 🌙
+
